@@ -1,1 +1,1 @@
-Hello, I’m @aleksi-lukkarinen, M.Sc. (Tech.)
+Hello, I’m @aleksi-lukkarinen, D.Sc. (Tech.)
